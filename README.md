@@ -13,4 +13,4 @@ I have confirmed this.
 
 2019-12-22	$200.00	Betaar3 Technologies
 
-Best regars.
+Best regards
