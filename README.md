@@ -1,16 +1,13 @@
 Hi.
+
 How are you?
 
-I have confirmed this.
+Please do not use my PP account from now on. 
 
-2019-12-05	$47.50	Amado Alejandro
+Because I have a problem with my PP account, I'm worried about it.
 
-2019-12-05	$334.30	 Alejandro
+I'll create another account and send it to you soon.
 
-2019-12-12	$334.30	Chen Alex
-
-2019-12-17	$174.27	Flor Arasil Victor
-
-2019-12-22	$200.00	Betaar3 Technologies
+Please check the remaining amount so far and let me know.
 
 Best regards
